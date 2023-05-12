@@ -1,1 +1,0 @@
-# ASHOKIT_DEMO
